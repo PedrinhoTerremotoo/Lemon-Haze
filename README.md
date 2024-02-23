@@ -1,0 +1,2 @@
+# Lemon-Haze
+CADA UM VAI FUMAR O QUE PLANTAR.
